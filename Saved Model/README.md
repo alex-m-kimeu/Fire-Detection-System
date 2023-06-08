@@ -1,1 +1,1 @@
-Link to [Saved-Model](https://drive.google.com/drive/folders/1_s7n9TK1cMbw-t4LUz1VnYWQN1gxBAzB?usp=sharing)
+Link to [Saved-Model](https://drive.google.com/file/d/1kGVyunTJUOroWjRiwDU_c4Rby0q-4QcT/view?usp=drive_link)

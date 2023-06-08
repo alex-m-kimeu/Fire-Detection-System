@@ -1,0 +1,1 @@
+Link to [TensorFlow-Lite-Model](https://drive.google.com/file/d/13_75LLvKAngLGgWyMRXh9VE421u3voyQ/view?usp=drive_link)
